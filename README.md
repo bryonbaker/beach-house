@@ -77,15 +77,15 @@ Please 💩 clean up after your pets. Put pet waste in the green bin.
 ## Barbeque
 Sometimes we have had rodents sniffing around the BBQ at night so when we leave the BBQ is is packed so they can't explore the cooking surface. You will need to set it up before you use it. The drip tray has a slot that it slides into from the left side. We suggest you get some aluminium foil to line the drip tray.
 
-## Outdoor chairs
+## Outdoor chairs 
 At night, please put the covers on the outdoor chairs. (This will keep the possums from making a mess of them.)
 
 # 👋 When you leave 👋
 
-## Kettle
+## ☕ Kettle ☕
 Please tip all water out of the kettle.
 
-## Hot Water
+## 💧 Hot Water 💧
 
 Turn the hot water off when you leave.
 
@@ -99,7 +99,7 @@ Turn off the following appliances at the wall:
 4. TV
 5. Microwave
 
-## Bins
+## 🚮 Bins 🚮
 
 Place the bins out on the front nature strip to the left (looking out) of the driveway.
 
@@ -108,7 +108,7 @@ The Green bin goes out every week, the Yellow and Red bins on alternate weeks.
 The bin schedule is here:
 ![Bin schedule](images/garbage.jpg)
 
-## BBQ
+## 🥩 BBQ 🥩
 Please leave the BBQ in the same state that you found it in.
 
 ## 🔑 Keys 🔑
