@@ -47,6 +47,9 @@ The back door has an unusual key mechanism. You need to turn the key two whole 3
 4. Make sure the air vent is fully open (pulled out)
 5. When the flames die down on the kindling put your first piece of wood on the fire and when the wood starts to burn well shut the air vent to 50%.
 
+#### Emptying the ash tray
+Just tip the ash in the garden bed outside the sunroom.
+
 
 ## ☕ Coffee Machine ☕
 Generally the coffee grind should be on 1. You should not need to touch it.
