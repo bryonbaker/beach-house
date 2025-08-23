@@ -36,6 +36,8 @@ The back door has an unusual key mechanism. You need to turn the key two whole 3
 * The Yellow bin is for recycling
 * The Red bin is for landfill.
 
+Bin and green-waste liners are in the third drawer in the kitchen.
+
 ## 🔥 The Fireplace 🔥
 
 ### Lighting the fire
@@ -73,7 +75,7 @@ The machine is configured for a double shot. Please don't change it unless you k
 Please 💩 clean up after your pets. Put pet waste in the green bin.
 
 ## Barbeque
-Sometimes we get rodents sniffing around the BBQ at night so it is packed so they can't explore the cooking surface.
+Sometimes we have had rodents sniffing around the BBQ at night so when we leave the BBQ is is packed so they can't explore the cooking surface. You will need to set it up before you use it. The drip tray has a slot that it slides into from the left side. We suggest you get some aluminium foil to line the drip tray.
 
 ## Outdoor chairs
 At night, please put the covers on the outdoor chairs. (This will keep the possums from making a mess of them.)
