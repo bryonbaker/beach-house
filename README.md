@@ -68,7 +68,7 @@ The machine is configured for a double shot. Please don't change it unless you k
 
 
 ## 🐶 Pets 🐶
-⚠️ There are two bait traps that keep any pets away. They are in black housings to protect pets. One is in the carport and one is under the verandah under the BBQ.
+⚠️ There are two bait traps that keep any pests away. They are in black housings to protect pets and wildlife. One is in the carport and one is under the verandah under the BBQ.
 
 Please 💩 clean up after your pets. Put pet waste in the green bin.
 
