@@ -118,5 +118,9 @@ Turn off the following appliances at the wall:
 ## 🥩 BBQ 🥩
 Please leave the BBQ in the same state that you found it in.
 
+Cleaning wipes and spray are in the toilet cupboard.
+
+Degreaser for your hands is on the window sill in the laundry.
+
 ## 🔑 Keys 🔑
 Place the keys back in the lock box and set the code to 000. Test the box to make sure it is locked properly.
