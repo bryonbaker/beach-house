@@ -72,10 +72,12 @@ The machine is configured for a double shot. Please don't change it unless you k
 ## 🐶 Pets 🐶
 ⚠️ There are two bait traps that keep any pests away. They are in black housings to protect pets and wildlife. One is in the carport and one is under the verandah under the BBQ.
 
-Please 💩 clean up after your pets. Put pet waste in the red (landfill) bin (☝️Remember - you're taking home your landfill).
+Please 💩 clean up after your pets. Put pet waste goes in landfill - not green waste. (☝️Remember - you're taking home your landfill).
 
 ## Barbeque
-Sometimes we have had rodents sniffing around the BBQ at night so when we leave the BBQ is is packed so they can't explore the cooking surface. You will need to set it up before you use it. The drip tray has a slot that it slides into from the left side. We suggest you get some aluminium foil to line the drip tray.
+Sometimes we have had rodents sniffing around the BBQ at night so when we leave the BBQ hot plates and drip tray packed so they can't explore the cooking surface. You will need to set it up before you use it. The drip tray has a slot that it slides into from the left side. We suggest you get some aluminium foil to line the drip tray.
+
+Easiest to use paper towels when handling the hot plates, but there is degreaser hand cream in the laundry on the window sill if needed.
 
 ## 🛋️ Outdoor chairs 🛋️
 At night, please put the covers on the outdoor chairs. (This will keep the possums from making a mess of them.)
